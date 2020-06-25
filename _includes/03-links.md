@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/russellchanyd/
+[LinkedIn](https://www.linkedin.com/in/russellchanyd/)
